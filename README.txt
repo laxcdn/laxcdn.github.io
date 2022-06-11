@@ -1,1 +1,1 @@
-My portfolio to showcase my porjects and abilities.
+My portfolio to showcase my projects and abilities.
